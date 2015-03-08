@@ -1,2 +1,0 @@
-# captur.us
-captur.us
